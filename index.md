@@ -1,1 +1,1 @@
-[Press here for bad website](https://dzungale.github.io/Lab0Report/)
+[Press here for bad website](https://dzungale.github.io/Lab0Report/lab-report-1-week-0.html)

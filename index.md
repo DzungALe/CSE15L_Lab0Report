@@ -1,1 +1,1 @@
-[Link](https://dzungale.github.io/Lab0Report/)
+[Press here for bad website](https://dzungale.github.io/Lab0Report/)
